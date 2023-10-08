@@ -17,3 +17,7 @@ We offer a variety of resources and events to help you learn about Tezos and blo
 If you are interested in learning more about Tezos or blockchain technology, we encourage you to join our club! We meet every week to discuss the latest news and developments in the Tezos ecosystem 📰. We also host workshops and hackathons to help you learn new skills and build your own projects 🛠️.
 
 Join us today and start building the future of blockchain! 👷‍♀️👷‍♂️
+
+**Reach out to us on** tezosjh@gmail.com
+
+**Use our Linktree:** https://linktr.ee/tezosclubjh 
